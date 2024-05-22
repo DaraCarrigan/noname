@@ -1,1 +1,1 @@
-The 17th century saw the rise of mercantilism, an economic theory that emphasized national wealth accumulation through exports and colonial expansion.
+The Bank of England, founded in 1694, became a central institution in the British economy, issuing currency, managing government debt, and facilitating commercial banking operations.
