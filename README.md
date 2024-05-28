@@ -1,1 +1,1 @@
-The Industrial Revolution led to the rise of urbanization, with millions of people migrating from rural areas to cities in search of employment in factories and other industrial enterprises.
+The global economy of the 19th century was characterized by the expansion of colonial empires, with European powers competing for territorial control, resources, and markets in Africa, Asia, and the Americas.
