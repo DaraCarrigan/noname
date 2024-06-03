@@ -1,1 +1,1 @@
-The Industrial Revolution led to the rise of urbanization, with millions of people migrating from rural areas to cities in search of employment in factories and other industrial enterprises.
+The British East India Company (EIC), chartered in 1600, was granted a monopoly on English trade with Asia and played a key role in British imperialism and commerce in the 17th century.
