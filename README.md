@@ -1,1 +1,1 @@
-The economic theories of mercantilism dominated European economic thought in the 17th century, advocating for state intervention in the economy to promote national wealth and power.
+The Treaty of Paris, signed in 1763, marked the end of the Seven Years' War and reshaped the global balance of power, leading to territorial realignments and trade agreements.
