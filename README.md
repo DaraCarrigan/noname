@@ -1,1 +1,1 @@
-The Treaty of Paris, signed in 1763, marked the end of the Seven Years' War and reshaped the global balance of power, leading to territorial realignments and trade agreements.
+The rise of mercantilism in the 18th century led to increased government intervention in the economy, including tariffs, subsidies, and trade monopolies aimed at promoting national wealth and power.
