@@ -1,1 +1,1 @@
-The rise of mercantilism in the 18th century led to increased government intervention in the economy, including tariffs, subsidies, and trade monopolies aimed at promoting national wealth and power.
+The Age of Enlightenment, a period of intellectual and cultural transformation in Europe, fostered new ideas about economics, politics, and society, influencing economic thought and policy.
