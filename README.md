@@ -1,1 +1,1 @@
-The rise of multinational corporations in the 19th century, such as Standard Oil, Carnegie Steel, and the British East India Company, wielded significant economic and political influence on a global scale.
+The Opium Wars between China and Britain in the mid-19th century, sparked by British attempts to expand the opium trade, resulted in China ceding Hong Kong and opening additional ports to foreign trade.
