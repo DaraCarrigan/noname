@@ -1,1 +1,1 @@
-The rise of joint-stock companies and stock exchanges in the 17th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
+The United Kingdom emerged as the world's leading economic power in the 19th century, fueled by industrialization, technological innovation, and global trade networks.
