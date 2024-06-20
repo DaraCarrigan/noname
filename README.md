@@ -1,1 +1,1 @@
-The United Kingdom emerged as the world's leading economic power in the 19th century, fueled by industrialization, technological innovation, and global trade networks.
+The rise of protectionism in the 19th century, including tariffs, quotas, and trade barriers, aimed to protect domestic industries from foreign competition but also led to trade conflicts and economic tensions between nations.
