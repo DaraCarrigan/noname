@@ -1,1 +1,1 @@
-The mechanization of agriculture in the 19th century, including the invention of the reaper and other farm machinery, increased agricultural productivity and led to the consolidation of landholdings.
+The Great Depression of the late 19th century, triggered by financial panics and economic downturns, led to widespread unemployment, business failures, and social unrest in many countries.
