@@ -1,1 +1,1 @@
-The Great Depression of the late 19th century, triggered by financial panics and economic downturns, led to widespread unemployment, business failures, and social unrest in many countries.
+The growth of colonial economies in the Americas was driven by cash crops such as sugar, tobacco, cotton, and indigo, which were cultivated using slave labor on large plantations.
