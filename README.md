@@ -1,1 +1,1 @@
-The transatlantic slave trade, which had been abolished by many European countries by the early 19th century, was replaced by the system of indentured labor, particularly in the British Empire's colonies.
+The Atlantic slave trade reached its peak in the 18th century, with millions of Africans forcibly transported to the Americas to work on plantations and in mines, contributing to economic growth in European colonies.
