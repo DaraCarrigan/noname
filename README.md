@@ -1,1 +1,1 @@
-The global economy of the 19th century was characterized by the expansion of colonial empires, with European powers competing for territorial control, resources, and markets in Africa, Asia, and the Americas.
+The rise of capitalism in the 17th century was accompanied by the emergence of modern banking practices, including the issuance of paper money, letters of credit, and banking services.
