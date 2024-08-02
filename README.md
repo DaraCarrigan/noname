@@ -1,1 +1,1 @@
-The Treaty of Westphalia, signed in 1648, marked the end of the Thirty Years' War in Europe and established the principle of state sovereignty, laying the groundwork for modern international relations.
+The Atlantic slave trade flourished in the 17th century, with millions of Africans forcibly transported to the Americas to work on plantations, mines, and other labor-intensive industries.
